@@ -1,1 +1,1 @@
-# brendendurham-brendendurham.github.io
+# brendendurham.github.io
